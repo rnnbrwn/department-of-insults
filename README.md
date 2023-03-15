@@ -1,1 +1,1 @@
-# department-of-insults
+# Department of Insults
